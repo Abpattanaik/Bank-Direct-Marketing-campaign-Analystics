@@ -26,4 +26,4 @@ Also the entire project is uploaded in Novypro.com for public use. Link: https:/
 
 YouTube Video:https://www.youtube.com/watch?v=S_LP6kHoNvk&feature=youtu.be
 
-LinkedIn Post:
+LinkedIn Post: https://www.linkedin.com/posts/akhilesh-buxi-pattanaik-69b403227_krishabrnaik-marketing-analytics-activity-7019358670689869825-O4Z0?utm_source=share&utm_medium=member_desktop
